@@ -1,5 +1,4 @@
-<img src="https://shields.io/" alt="qais profile views">
-</p>
+
 i dont know how to code hua hua hua c + h encourgaed heavily okeoekeoeokak
 
 
