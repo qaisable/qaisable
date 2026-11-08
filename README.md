@@ -1,3 +1,4 @@
+![qais](https://komarev.com/ghpvc/?username=qaisable&label=qais&style=flat-square&color=blue)
 
 i dont know how to code hua hua hua c + h encourgaed heavily okeoekeoeokak
 
